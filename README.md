@@ -171,9 +171,7 @@ We serve leading manufacturers across multiple industries:
 
 **Ready to modernize your manufacturing operations?**
 
-📧 **Email**: info@mip-platform.com  
-🌐 **Website**: www.mip-platform.com  
-📞 **Phone**: +82-XX-XXXX-XXXX
+📧 **Email**: lyhdra88@naver.com
 
 Request a demo and discover how MIP can transform your factory.
 
